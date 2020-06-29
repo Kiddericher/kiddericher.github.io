@@ -13,5 +13,5 @@ Korbinian lebt mit seiner Schwester Marie in deren Bauernhof, wo er Tag täglich
 
 > Danke, Wiederschaun!
 
-<img src="URL"/> https://www.fernweh-park.de/wp-content/uploads/2019/11/Burger_Ortstafel-Rosenheim-Cops_closeup_IMG_20191030_093407.jpg)
+<img src="URL"/> https://www.fernweh-park.de/wp-content/uploads/2019/11/Burger_Ortstafel-Rosenheim-Cops_closeup_IMG_20191030_093407.jpg
 
