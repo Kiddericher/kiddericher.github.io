@@ -10,3 +10,5 @@ Korbinian lebt mit seiner Schwester Marie in deren Bauernhof, wo er Tag täglich
 * oft brummelig
 * kein guter Freund
 * isst gern Schweinsbraten
+
+> Danke, Wiederschaun!
